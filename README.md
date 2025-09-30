@@ -1,0 +1,1 @@
+# Manual-para-o-Projeto-Territ-rio-Conecta
